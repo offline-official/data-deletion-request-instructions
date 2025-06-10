@@ -21,4 +21,4 @@ Contact our support team at **[support@offline-social.com]** with the following 
 - Data deletion is permanent and cannot be undone.  
 
 **Last Updated:** Apr. 7th, 2025
-**Support Email:** [support@offline-social.com]  
+**Support Email:** [offlinehelp2025@gmail.com]  
